@@ -11,3 +11,5 @@ Al mal tiempo buena cara
 Camaron que se duerme, se lo lleva la corriente.
 
 Un clavo saca otro calvo
+
+El onceavo mandamiento no estorba.
